@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GCINGCAL
 - 👀 I’m interested in ... Cloud computing
-- 🌱 I’m currently learning ... Computer science
+- 🌱 I’m currently learning ... I am student
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... gcingcalonwabo7@gmail.com
 
